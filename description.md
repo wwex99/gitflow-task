@@ -1,0 +1,1 @@
+MacBook Pro 13" M2 - a more powerful laptop for tasks that require active cooling and long-lasting performance. - MacBook Air M1 - the previous generation, providing excellent value for money. - Dell XPS 13 - a Windows alternative with a similar design and compactness.
